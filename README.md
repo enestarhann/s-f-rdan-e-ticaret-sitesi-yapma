@@ -1,1 +1,0 @@
-# s-f-rdan-e-ticaret-sitesi-yapma
